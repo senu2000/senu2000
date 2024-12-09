@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Image processing techniques and Microservices**
 
-- 👨‍💻 All of my projects are available at [senuraadithya.me](senuraadithya.me)
+- 👨‍💻 All of my projects are available at [senuraadithya.me](https://www.senuraadithya.me)
 
 - 💬 Ask me about **Java, React**
 
