@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **senuraadithya4@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10jhyEvzr_sYlzufND5OShXdn560AHtmQ/view?usp=sharing](https://drive.google.com/file/d/10jhyEvzr_sYlzufND5OShXdn560AHtmQ/view?usp=sharing)
+- 📄 Discover my experiences [here](https://drive.google.com/file/d/10jhyEvzr_sYlzufND5OShXdn560AHtmQ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
